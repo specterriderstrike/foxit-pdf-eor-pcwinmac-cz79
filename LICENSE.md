@@ -1,4 +1,4 @@
-# 
+# Profissional Foxit PDF Editor scripts para Mac OS | Exclusivo Foxit PDF Editor scripts para PC Windows. Com cálculos de diária e categorização de despesas — otimizado para máximo desempenho em cada plataforma.
 
 
 
